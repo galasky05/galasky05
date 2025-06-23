@@ -59,14 +59,14 @@
 ---
 
 ### 💬 Favorite Quote
-> _"Setiap pertemuan pasti ada arti — dan pasti ditakdirkan."_ 🌟
+> _"Tidak ada pertemuan yang kebetulan."_ 🌟
 
 ---
 
 ### 🎯 Fun Facts
 
-- 🎮 Hobi: Main game strategi dan rakit ulang kabel LAN
-- 📷 Kadang suka motret aktivitas PKL
-- 🧩 Motto: "Make it work first, then make it pretty"
+- 🎮 Hobi: Membuat orang penasaran
+- 📷 Suka dengan sesuatu yang mencolok
+- 🧩 Motto: "Ten confianza en todo lo que hagas"
 
 ---
